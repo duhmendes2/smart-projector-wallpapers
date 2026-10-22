@@ -4,12 +4,27 @@ Coleção oficial e curada de papéis de parede e protetores de tela em **16:9 e
 
 ## 📂 Categorias & Obras
 
-### 🌸 Animes
-- **Your Name** (Kimi no Na wa) · Makoto Shinkai
-- **A Viagem de Chihiro** (Spirited Away) · Studio Ghibli
-- **O Castelo Animado** (Howl's Moving Castle) · Studio Ghibli
-- **Demon Slayer: Mugen Train** · Ufotable
-- **Suzume** · Makoto Shinkai
+### 🌸 Animes Favoritos do Duh Mendes
+1. **Solo Leveling** (Sung Jin-woo & Monarca das Sombras)
+2. **Gachiakuta**
+3. **SPY x FAMILY** (Anya, Loid & Yor)
+4. **Kaiju No. 8**
+5. **Pokémon (Clássico)** (Ash, Pikachu & Kanto)
+6. **Dragon Ball DAIMA**
+7. **Dragon Ball Super: Beerus** (Batalha dos Deuses)
+8. **Dragon Ball Clássico** (Goku Pequeno na Nuvem Voadora)
+9. **Sakamoto Days**
+10. **Dan Da Dan** (Momo & Okarun)
+11. **That Time I Got Reincarnated as a Slime** (Rimuru Tempest)
+12. **Digimon Adventure: (2020)**
+13. **Digimon Tamers** (Guilmon & Takato)
+14. **Sword Art Online** (Aincrad / Kirito & Asuna)
+15. **100 Coisas para Fazer Antes de Virar Zumbi** (Zom 100)
+16. **Dr. STONE** (Senku Ishigami)
+17. **My Hero Academia** (Deku & All Might)
+18. **The Beginning After the End**
+19. **Wistoria: Wand and Sword** (Will Serfort)
+20. **Attack on Titan** (Shingeki no Kyojin)
 
 ### 🦸 Marvel & Heróis
 - **Homem-Aranha: Através do Aranhaverso** (Miles Morales & Spider-Verse)
